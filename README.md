@@ -6,6 +6,8 @@ Tu pourrais être peinard en CDI à la Poste.
 Voici les 10 commandements de la ***Startup Nation***, à destination des futurs gérants de SAS.
 (Je ne parle même pas des autres statuts type SARL et Autoentrepreuneur...)
 
+*Ce document ironique vise à interpeller les politiques sur notre situation.*
+
 ## 1 - À l'échec, tu n'auras pas le droit
 
 Tu as bossé comme un fou pendant des mois, sans même te payer ?
