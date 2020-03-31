@@ -42,13 +42,11 @@ La dame de la sécu t'enverra voir le RSI. L'agent des impôts n'y comprendra ri
 Il faut être couillu pour te risquer à prendre ton premier salarié !
 
 Tu économiseras durement pour payer ton dev qui te coûte 100kE / an.
-Avec le reste, tu essairas de te payer un petit salaire. Et pas de tickets resto pour toi : il n'y a que lui qui y a droit.
-
-Heureusement, tu es dans les seuils pour la fameuse exonération Fillon sur les charges des bas salaires. Mais pas de bol, les mandataires sociaux sont exclus du dispositif. Donc t'es niqué. Pour le même coût à l'entreprise, tes salariés toucheront bien plus que toi.
+Avec le reste, tu essairas de te payer un petit salaire. 
 
 Si ta trésorerie baisse, c'est ta rémunération qui fera variable d'ajustement. Pas question de toucher à leur CDI.
 
-Et prévoit de la marge. Car si ça merde, le salarié n'en aura rien à foutre de la santé de ta boîte. Il sait qu'il est toujours favorisés aux prud'hommes.
+Et prévoit de la marge. Car si ça merde, le salarié n'en aura rien à foutre de la santé de ta boîte. Il sait qu'il est toujours favorisés aux prud'hommes, mais lorsqu'il est en tort.
 
 ## 5 - Les agents SNCF tu detesteras
 
@@ -69,11 +67,6 @@ Heuresement pour toi, tu n'as pas de gamins à la crèche (voir la suite).
 ## 7 - Avoir des enfants, tu éviteras
 
 Les enfants, ça prend du temps. Mais comme l'entrepreuneur a une vie oisive, pas besoin d'aide supplémentaire.
-
-### Ton congé maternité, tu mériteras
-
-Si t'es salarié, trop facile : un mois de travail avant la grossesse pour y avoir droit.
-Mais pour toi, il faudra d'abord t'être versé au moins 6 mois de SMIC.
 
 ### Ton gamin, tu garderas
 
