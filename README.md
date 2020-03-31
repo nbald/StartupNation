@@ -104,5 +104,18 @@ Pour 1500€ dépensés par l'entreprise
 
 Réduction Fillon sur les bas salaires - pour les salariés uniquements.
 
+## 10 - Un secteur non impacté par le COVID-19, tu choisiras
+
+Tes salariés toucheront paisiblement leurs 85% de chomage partiel.
+Mais toi, tu vas devoir gérer toutes les emmerdes liées à ta perte d'activité.
+
+Et pour récompenser ton manque de sommeil, l'état versera 1500 € à ta boîte.
+
+Avec ça, tu pourras te payer 820 € - si tu as la chance d'être tout seul.
+Si jamais vous avez la malchance d'être plusieurs gérants, ça sera 820 € à partager par le nombre de personnes.
+
+
 ...
-A vous de compléter la suite, qui est probablement encore longue
+
+
+#### A vous de compléter la suite, qui est probablement encore longue
