@@ -72,7 +72,7 @@ Les enfants, ça prend du temps. Mais comme l'entrepreuneur a une vie oisive, pa
 
 La crèche publique, c'est mort : avec ton statut de chef d'entreprise, la commission pensera que tu es pété de thunes, donc la priorité ira à d'autres plus défavorisés.
 
-Eventuellement, il te reste la crèche d'entreprise. Mais pour ça, il faudra que tu ai déjà un salarié qui en profite, sinon c'est niet. Donc la solution : gagne plein de pognon pour embaucher des salariés jeunes parents.
+Eventuellement, il te reste la crèche d'entreprise. Mais pour ça, il faudra que tu ais déjà un salarié qui en profite, sinon c'est niet. Donc la solution : gagne plein de pognon pour embaucher des salariés jeunes parents.
 
 ### Au bureau, tu reviendras
 
