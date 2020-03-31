@@ -19,7 +19,7 @@ Démerde toi ! Tu n'as pas mérité le droit au chômage.
 
 À la limite, si tu as plus de 25 ans, tu pourras peut-être toucher le RSA.
 
-## 2 - À tes projets personnels, tu rennonceras
+## 2 - À tes projets personnels, tu renonceras
 
 Faire un prêt personnel ou immobilier ?
 Louer un logement décent ?
@@ -70,6 +70,11 @@ Heuresement pour toi, tu n'as pas de gamins à la crèche (voir la suite).
 
 Les enfants, ça prend du temps. Mais comme l'entrepreuneur a une vie oisive, pas besoin d'aide supplémentaire.
 
+### Ton congé maternité, tu mériteras
+
+Si t'es salarié, trop facile : un mois de travail avant la grossesse pour y avoir droit.
+Mais pour toi, il faudra d'abord t'être versé au moins 6 mois de SMIC.
+
 ### Ton gamin, tu garderas
 
 La crèche publique, c'est mort : avec ton statut de chef d'entreprise, la commission pensera que tu es pété de thunes, donc la priorité ira à d'autres plus défavorisés.
@@ -85,5 +90,19 @@ Pour un salarié, un seul mois suffit.
 
 T'as fini de pondre ton truc ? Alors je veux te voir au boulot demain, feignasse ! Rachida ne s'est pas plaint, elle.
 
-## 8 - ...
+## 8 - Manger dehors, tu éviteras
+
+Les tickets restaurant, c'est pour tes salariés, pas pour toi. Merci l'URSSAF.
+
+## 9 - Une misère, tu te paieras
+
+Une grande majorité des entrepreneurs se paient très peu, voir pas du tout les premières années.
+
+Pour 1500€ dépensés par l'entreprise 
+- un salarié recoit 1100 € nets (+ le droit au chomage)
+- un entrepreneur assimilé salarié reçoit 820 € nets
+
+Réduction Fillon sur les bas salaires - pour les salariés uniquements.
+
+...
 A vous de compléter la suite, qui est probablement encore longue
