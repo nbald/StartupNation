@@ -46,7 +46,7 @@ Avec le reste, tu essairas de te payer un petit salaire.
 
 Si ta trésorerie baisse, c'est ta rémunération qui fera variable d'ajustement. Pas question de toucher à leur CDI.
 
-Et prévoit de la marge. Car si ça merde, le salarié n'en aura rien à foutre de la santé de ta boîte. Il sait qu'il est toujours favorisés aux prud'hommes, mais lorsqu'il est en tort.
+Et prévoit de la marge. Car si ça merde, le salarié n'en aura rien à foutre de la santé de ta boîte. Il sait qu'il est toujours favorisés aux prud'hommes, même lorsqu'il est en tort. Ces patrons exclavagistes au service du capitalisme...
 
 ## 5 - Les agents SNCF tu detesteras
 
